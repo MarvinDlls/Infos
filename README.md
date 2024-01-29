@@ -9,4 +9,4 @@ Porteur d'une bonne motivation et soif de défis, je suis prêt à apporter une 
 
 🗓️ Début de l’alternance: juin 2024
 
-Rythme: 5j/5 (sauf 17 vendredi au cours des 13mois)
+Rythme: 5j/5 (incluant 17 vendredis en formation au cours des 13mois)
